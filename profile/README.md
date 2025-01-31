@@ -13,3 +13,5 @@ One of Them Days 𝟸𝟶𝟸𝟻 | One of Them Days 𝚃𝚎𝚕𝚓𝚎𝚜 �
 One of Them Days
 
 𝟸𝟶𝟸𝟻 𝚓𝚊𝚗𝚞á𝚛 31 . 𝟷𝟷𝟶 𝚙𝚎𝚛𝚌 . 𝚑𝚘𝚛𝚛𝚘𝚛
+
+𝚁𝚎𝚗𝚍𝚎𝚣ő: 𝙹𝚞𝚜𝚝𝚒𝚗 𝙻𝚒𝚗 𝙻𝚎𝚒𝚐𝚑 𝚆𝚑𝚊𝚗𝚗𝚎𝚕𝚕
